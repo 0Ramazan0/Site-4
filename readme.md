@@ -1,1 +1,1 @@
-URL: https://0ramazan0.github.io/Site-4/
+URL: https://the-click.github.io/Site-4/
